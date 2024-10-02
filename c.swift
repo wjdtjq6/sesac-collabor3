@@ -1,1 +1,1 @@
-hi yoongay im sogay can i get you?
+No. I'm not g
