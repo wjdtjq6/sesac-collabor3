@@ -1,1 +1,1 @@
-hi yoongay im sogay can i get you?
+졸리다 싯팔
