@@ -1,5 +1,5 @@
 func a() {
-  print("ㅗ")
+  print("ㅇ")
 }
 
 a()
